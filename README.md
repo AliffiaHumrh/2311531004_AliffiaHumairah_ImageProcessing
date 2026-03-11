@@ -1,1 +1,0 @@
-# 2311531004_AliffiaHumairah_ImageProcessing
